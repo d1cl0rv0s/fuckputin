@@ -16,4 +16,4 @@
 ### LiveUSB Version based on ventoy of putlerkaput dist comming soon ... 
 
 Now leave the process running for as much as you can
-Thank you for fighting on our side! 💪 🇺🇦
+Thank you for fighting on our side! 💪 🇺🇦 & Slava Ukraine / Zhive Belarus!!!
